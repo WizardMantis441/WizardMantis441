@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+oh my god i can make a repository under my name and look dumb asf lmao
+
 <!--
 **WizardMantis441/WizardMantis441** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
