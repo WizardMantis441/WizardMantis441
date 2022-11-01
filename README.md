@@ -1,6 +1,5 @@
 ### What's up Friday Night Funkers! *sees GF*
-- wishlist average4k
-
+- wishlist average4k **now**
 - codename supremacy (please support my boy [yoshi](https://twitter.com/yoshicrafter29) he is actually incredible) 
 
 <!--
