@@ -1,6 +1,7 @@
-### Hi there 👋
+### What's up Friday Night Funkers! *sees GF*
+- wishlist average4k
 
-oh my god i can make a repository under my name and look dumb asf lmao
+- codename supremacy (please support my boy [yoshi](https://twitter.com/yoshicrafter29) he is actually incredible) 
 
 <!--
 **WizardMantis441/WizardMantis441** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
