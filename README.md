@@ -1,6 +1,6 @@
-### What's up Friday Night Funkers! *sees GF*
-- wishlist average4k **now**
-- codename supremacy (please support my boy [yoshi](https://twitter.com/yoshicrafter29) he is actually incredible) 
+## Hello Chat.
+i make dumb things please don't make fun of me :(
+discord / twitter - @wizardmantis441
 
 <!--
 **WizardMantis441/WizardMantis441** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
